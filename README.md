@@ -1,1 +1,1 @@
-# Hastahane-Veritaban-
+# Hastahane-Veritabani-
